@@ -17,7 +17,7 @@ These arts (except Steaming Brain) got selected for the [neurobureau 2018](https
 
 Other arts works I have participated in making (licensed under other licenses):
 
-* [GIGA Video contest 2017 winner](https://www.youtube.com/watch?v=82ZuZBubR7Y) (filming, effects, scenario).
+* [GIGA Video contest 2017 winner](https://www.youtube.com/watch?v=82ZuZBubR7Y) (scenario, filming, special effects).
 * [Science's Dance My PhD 2018, Biology category winner](https://www.science.org/content/article/winner-year-s-dance-your-phd-contest-turned-physics-art) (filming assistant).
 
 ## Attribution
